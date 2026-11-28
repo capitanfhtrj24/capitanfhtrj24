@@ -13,3 +13,5 @@
 [Серия 6](https://capitanfhtrj24.github.io/capitanfhtrj24/seria6/)
 
 [Серия 7](https://capitanfhtrj24.github.io/capitanfhtrj24/seria7/)
+
+[Серия 8](https://capitanfhtrj24.github.io/capitanfhtrj24/seria8/)
